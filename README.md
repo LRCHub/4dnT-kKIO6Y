@@ -1,4 +1,4 @@
-# BUMP OF CHICKEN – アカシア
+# BUMP OF CHICKEN – アカシア - Acacia
 
 > **歌詞登録ステータス：同期歌詞あり**
 
